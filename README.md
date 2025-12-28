@@ -13,3 +13,4 @@
 
 ● Demonstrated strong problem-solving and critical-thinking skills in identifying key factors impacting video performance and developing targeted solutions
 
+<img width="1482" height="857" alt="Decoding" src="https://github.com/user-attachments/assets/3cba9abf-4da3-4062-9517-66b700a0d603" />
